@@ -1,6 +1,6 @@
 # 下载地址
 
-[百度网盘](https://pan.baidu.com/s/15hWjcvG2xSxSrwrGvhQ0rw?pwd=9ex5)
+[百度网盘](https://pan.baidu.com/s/1I1dFWSPJh3WjhFrFrLIawg?pwd=0vr3)
 
 [猪盘(onedrive)](https://pan.zhuxiaole.org/%E5%BE%AE%E8%A7%A3)
 
